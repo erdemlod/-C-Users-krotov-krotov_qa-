@@ -1,1 +1,0 @@
-# -C-Users-krotov-krotov_qa-
